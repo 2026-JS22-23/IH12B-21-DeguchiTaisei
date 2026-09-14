@@ -1,1 +1,0 @@
-# 2026-JS22-23-IH12B-21-DeguchiTaisei
